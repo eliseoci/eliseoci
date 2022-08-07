@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @eliseoci
-- 💞️ I’m looking to collaborate on interesting web3 projects
+- 🚀 I’m looking to collaborate on interesting web3 projects
 - 📫 How to reach me: Twitter @eliseoci or LinkedIn: https://www.linkedin.com/in/eliseoci/
 
 <!---
